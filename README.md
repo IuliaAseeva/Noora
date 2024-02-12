@@ -6,3 +6,4 @@
 -Планирую поехать в путишествие в Китай
 
 Есть кот Ру
+![YULIA 3](https://github.com/IuliaAseeva/Noora/assets/149232931/aed2f0ec-3add-4e45-a2e0-4ac3c8531ccd)
